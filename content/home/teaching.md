@@ -23,8 +23,8 @@ Below are my recent travel blogs:
 <li><a href="https://pennytraveller.quora.com/Mathura-Vrindavan-Feb-2018" target="_blank">Mathura Vrindavan - A place for Shri Krishna and Radha devotees </a>
 <li><a href="https://pennytraveller.quora.com/Auli-Jan-2018" target="_blank">Auli - Mini Switzerland of India</a>
 <hr />
-I am also active on Quora where I write answers related to some random stuff and my answers has more than 56,000 views. <a href="https://www.quora.com/profile/Sachin-Sehrawat-9" target="_blank"> You can checkout my Quora profile here.</a>
+I am also quite active on Quora where I write answers related to some random stuff that interest me and my answers have more than 56,000 views. You can checkout my Quora profile<a href="https://www.quora.com/profile/Sachin-Sehrawat-9" target="_blank"> here.</a>
 <hr />
-Anyone can follow me here also
+You are welcome to follow me on
 <li><a href="https://www.linkedin.com/in/sachin-sehrawat-5647a26b/" target="_blank">Linkedin</a>
 <li><a href="https://www.instagram.com/thesachinsehrawat/" target="_blank">Instagram</a> 
